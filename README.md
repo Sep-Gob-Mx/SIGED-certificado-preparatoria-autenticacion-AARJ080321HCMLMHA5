@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AARJ080321HCMLMHA5
+AARJ080321HCMLMHA5
